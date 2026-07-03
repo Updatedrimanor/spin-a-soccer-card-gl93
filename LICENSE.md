@@ -1,4 +1,4 @@
-#  
+#  Experience spin a soccer card like never before with spin a soccer card premium Script, the #1 Script. Includes unlimited stamina and god mode for
 
 
 
